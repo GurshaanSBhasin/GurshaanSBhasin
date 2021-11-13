@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @GurshaanSBhasin
+- 👋 Hi, I’m Gurshaan Singh 
 - 👀 I’m interested in Basketball , Learning new ways to Code and grow and Music
 - 🌱 I’m currently studying Undergrad at VIT and still exploring things
 - 📫 How to reach me : 
